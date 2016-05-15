@@ -31,6 +31,8 @@ Slide NO.|图像 | 文字 | timeline |音乐
 
 Business is not part of the problem, Business is part of the solution.
 
+平台方向之一：把学界的力量集合起来，运用商业化的思维，把成果商业化
+
 ………………
 
 快来，我们在岸边，等你返航
